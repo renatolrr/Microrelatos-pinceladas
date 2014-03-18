@@ -13,4 +13,8 @@ Hay ruido, suena jazz y veo la gente sentada, parejas mirándose, charla animada
 ==========
 Siento que vuelvo a respirar, que mi mente poco a poco vuelve a estar en funcionamiento. Hay un silencio agradable, pero que no es vacio. Ya no tengo más ganas,  estoy totalmente satisfecho, pero necesito sentir otra vez la suavidad en mis dedos, deslizándolos. No quiero despertarla, pero sé que no lo está. Hoy no me importa mostrarme desnudo después. Quizás haya vencido el miedo a la desnudez, después. Deslizo mis dedos suavemente evitando rozar su clítoris pero ella se mueve, temo despertarla y apoyo mi cabeza en su pecho desnudo., siento su corazón, Mis mano se separan, he sentido sus labios en los míos, pero necesito volver a acariciarla. No respiramos, simplemente la respiración se va acompasando y con los ojos cerrados, siento las últimas gotas de semen que se deslizan por mis muslos, por los suyos también. No quiero sentir más, solo vivir el momento, compartir el momento.
 
+18/2/2014 bis
+==============
+Un día cualquiera,  un día en la vida de una persona,  pero no, era un día especial, era el momento exacto en que el músico con su estuche dijo “Hasta aquí he llegado”. Contemplaba, el estuche de su instrumento, en la habitación que estaba, sobre la mesa camilla, había dejado su pistola. No tenia salida, iba a explotar, e hizo lo que tenía que hacer, cogió la pistola, la amartillo y dirigiéndola lentamente, disparo. Ya no podía llorar mas, ya no podía bailar, y la bailarina se había quedado sin su música. Y la soledad, la del músico en su motel, sin su instrumento, y la bailarina sin su música.
+
 
