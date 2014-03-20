@@ -17,4 +17,8 @@ Siento que vuelvo a respirar, que mi mente poco a poco vuelve a estar en funcion
 ==============
 Un día cualquiera,  un día en la vida de una persona,  pero no, era un día especial, era el momento exacto en que el músico con su estuche dijo “Hasta aquí he llegado”. Contemplaba, el estuche de su instrumento, en la habitación que estaba, sobre la mesa camilla, había dejado su pistola. No tenia salida, iba a explotar, e hizo lo que tenía que hacer, cogió la pistola, la amartillo y dirigiéndola lentamente, disparo. Ya no podía llorar mas, ya no podía bailar, y la bailarina se había quedado sin su música. Y la soledad, la del músico en su motel, sin su instrumento, y la bailarina sin su música.
 
+22/2/14
+========
+Una sonrisa, abrir los ojos y sentir piel, no la tuya, la suya. Calor compartido y sensacion de desnudez, de  fragilidad. Ella se levanta y se sienta en la cama. Me tapo, vuelvo a sentir vergüenza de mi desnudez, de mi erección. No quiero que se aparte de mi, la necesito, pero tampoco quiero que lo sepa. Ella coge su sujetador y se lo quito de las manos, como un ultimo intento de dejarla a mi laso, se sonríe y escucho su respiración, la mía se acompasa y ya solo hay una respiración. Se retumba y se deja caer sobre mi pecho, piel contra piel. La beso en el cuello y le levanto los brazos, hundiendo mi cabeza en su cuello y besándola, bajando por su espalda y besándola.Deslizo los tirantes por sus brazos y con suavidad, levanto sus senos por encima de los aros. Rozo levemente su piel y cierro la trabilla. No la estoy poseyendo, no la estoy atando, solamente dejo que se vaya y sigue a mi lado. Dejo de respirar y mi mente poco a poco deja de estar funcionando. Vuelve el ruido.
 
+  
